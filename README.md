@@ -14,7 +14,7 @@ We argue whether Reaper from Overwatch is a villain or not. Sophwest takes the s
 
 ## Credits
 
-
+Images courtesy of the Overwatch website and the Villains Wiki... and just because he's on the villains wiki doesn't mean he's a villain. 
 
 ## License
 
